@@ -1,0 +1,1 @@
+# Jogo-O-Segredo-de-Mani-com-texto
